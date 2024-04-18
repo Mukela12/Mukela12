@@ -20,4 +20,4 @@
 
 I've been skateboarding for 6 years, and it's my happy place, helping me unwind and find creative inspiration.
 
-![Uploading image.png…]()
+![image](https://github.com/Mukela12/Mukela12/assets/65640620/a2ed5357-3bf1-447b-9484-4c57c3391cf6)
