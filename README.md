@@ -19,3 +19,5 @@
 ## Fun Fact:
 
 I've been skateboarding for 6 years, and it's my happy place, helping me unwind and find creative inspiration.
+
+![Uploading image.png…]()
