@@ -16,7 +16,4 @@
 - **Email:** SWE2009962@xmu.edu.my | Mukelathegreat@gmail.com (yes, I made that email in middle school 😂)
 - **Phone:** +601114257340
 
-## Fun Fact:
-
-I've been skateboarding for 6 years, and it's my happy place, helping me unwind and find creative inspiration.
 
