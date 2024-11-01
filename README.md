@@ -14,6 +14,6 @@
 ## Connect with Me:
 
 - **Email:** SWE2009962@xmu.edu.my | Mukelathegreat@gmail.com (yes, I made that email in middle school 😂)
-- **Phone:** +601114257340
+- **Phone:** +601114257340 | +260771699187
 
 
