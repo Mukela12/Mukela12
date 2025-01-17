@@ -1,6 +1,6 @@
-# Mukela Katungu | Backend Developer | Student | Tech Enthusiast 🚀
+# Mukela Katungu | Backend Developer 🚀
 
-🌍 I'm a 22 year old Zambian 🇿🇲 developer currently based in Malaysia 🇲🇾, passionate about building impactful technology and always eager to learn and grow.
+🌍 I'm a 23 year old Zambian 🇿🇲 developer currently based in Malaysia 🇲🇾, passionate about building impactful technology and always eager to learn and grow.
 
 ## Currently Working On:
 
